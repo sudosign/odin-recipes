@@ -1,1 +1,1 @@
-for the odin project. using things we learned in first few chaps.
+THIS IS TERRIBLE :sob: :sob: I NEED TO LEARN UI/UX
